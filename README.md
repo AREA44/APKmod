@@ -2,4 +2,4 @@
 More apps for Android.
 
 ## Copyright
-GPL-3.0.
+[MIT](LICENSE.md).
