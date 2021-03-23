@@ -1,5 +1,7 @@
 # [CamScanner](https://www.camscanner.com/)
-CamScanner offers many powerful features but they are not free. You will have to pay $ 4.99/month or $ 49.99/year to unlock the whole thing. That’s why you should use the MOD version of APKMODY. It’s free.
+CamScanner offers many powerful features but they are not free.
+You will have to pay $ 4.99/month or $ 49.99/year to unlock the whole thing.
+That’s why you should use the MOD version of APKMODY. It’s free.
 
 ## MOD features
 * Unlocked all the advanced features of the Premium version.
